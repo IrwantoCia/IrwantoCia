@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **irwantocia@gmail.com**
 
-- ⚡ Fun fact **Don't judge me**
+- ⚡ Fun fact **Don't judge me!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
